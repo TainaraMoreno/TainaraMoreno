@@ -2,7 +2,6 @@
 
 ## Tainara Moreno 
 
-![Foto](C:\Users\Usuário Groove\Desktop\Reprograma/aula1.png)
 
 :smile:
 
